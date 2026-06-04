@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://SeizeTrooperSaw.github.io/survive-the-apocal-gv35/ ) |
  |---------------------|----------------------:|
 
 
